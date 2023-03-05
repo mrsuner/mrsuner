@@ -17,7 +17,7 @@ Fight Evil, Say NO to CCP.
 > 
 > Then don't blame them when they kill your child.
 > 
-> Then don't cry when they talking your peaceful life.
+> Then don't cry when they take your peaceful life.
 > 
 > Because you choose it.
 
