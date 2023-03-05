@@ -8,12 +8,17 @@
 Fight Evil, Say NO to CCP.
 
 > They mark themselves as saviors.
+> 
 > They tell their people western countries are bad, all their suffering from the West.
+> 
 > They brainwash the children to let them hate you.
 > 
 > And they tell you they are your friend, and you believe them.
+> 
 > Then don't blame them when they kill your child.
+> 
 > Then don't cry when they talking your peaceful life.
+> 
 > Because you choose it.
 
 <!---
