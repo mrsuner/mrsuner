@@ -10,16 +10,17 @@ Fight Evil, Say NO to CCP.
 > They mark themselves as saviors.
 > 
 > They tell their people western countries are bad, all their suffering from the West.
-> 
-> They brainwash the children to let them hate you.
+>
+> They brainwash the children to let them hate you for no reason.
 > 
 > And they tell you they are your friend, and you believe them.
 > 
-> Then don't blame them when they kill your child.
-> 
-> Then don't cry when they take your peaceful life.
-> 
-> Because you choose it.
+> Then don't cry when they kill your child.
+>
+> Then don't anger when they take your peaceful life.
+>
+> You chose it.
+
 
 <!---
 mrsuner/mrsuner is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
