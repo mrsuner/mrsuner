@@ -21,6 +21,10 @@ Fight Evil, Say NO to CCP.
 >
 > You chose it.
 
+![沒有暴徒，袛有暴政](https://s3.tebi.io/sunimg/democracy/2019-hk.jpeg)
+
+沒有暴徒，袛有暴政
+There are no rioters, there's only tyranny
 
 <!---
 mrsuner/mrsuner is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
